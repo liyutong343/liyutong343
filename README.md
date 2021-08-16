@@ -3,7 +3,7 @@
 
 - 🥰 Hi, I’m @liyutong343!
 
-- 🌱 I’m currently learning EE in thu!
+- 🌱 I’m currently learning EE in THU!
 
 - 📫 You can reach me by email: 1871637628@qq.com
 
